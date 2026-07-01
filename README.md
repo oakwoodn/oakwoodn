@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=loeanderson&color=green)
 
-<img width="450" height="230" alt="image" src="https://files.catbox.moe/56galg.jpg"" />
+<img width="450" height="230" alt="image" src="https://files.catbox.moe/56galg.jpg" />
 
-![Alt Tag](https://files.catbox.moe/56galg.jpg")
+![Alt Tag](https://files.catbox.moe/56galg.jpg)
 
 <p align="center"><a href="https://rentry.co/oeajandre">𝓻𝓮𝓷𝓽𝓻𝔂<a/>
   𖦹
