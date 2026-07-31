@@ -1,16 +1,18 @@
-## Hi there 👋
+<p align="center"/>
+  
+  ![](https://komarev.com/ghpvc/?username=oakwoodn&color=blue)
 
-<!--
-**oakwoodn/oakwoodn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+</p>
+<img width="736" height="735" alt="Untitled152_20260731143123" src="https://github.com/user-attachments/assets/ed9460d2-4ebd-484a-a177-b0d52f0bed66" />
 
-Here are some ideas to get you started:
+$${\color{#618cd0}loéㅤ.ㅤinfp}$$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$${\color{#5d65b0}Obstacles - Syd Matters}$$
+
+$${\color{#2d357d}⌢}$$
+</p>
+<img width="20" height="20" alt="17855033045687360708352341378365" src="https://github.com/user-attachments/assets/0225e19b-dbfd-49bf-b619-89ec49681bc5" />
+</p>
+<img width="26" height="21" alt="17855034702511578233005150231711" src="https://github.com/user-attachments/assets/94898f23-c87a-401a-a5ee-8cbbb95a56f8" />
+
+
