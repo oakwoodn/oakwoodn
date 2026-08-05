@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=oakwoodn&color=618CD0&style=plastic&label=🦌")
 
 </p>
-<img width="736" height="735" alt="Untitled152_20260731143123" src="https://github.com/user-attachments/assets/ed9460d2-4ebd-484a-a177-b0d52f0bed66" />
+<img width="400" height="400" alt="Untitled152_20260731143123" src="https://github.com/user-attachments/assets/ed9460d2-4ebd-484a-a177-b0d52f0bed66" />
 
 $${\color{#87a6ce}art \space by \space @_eclrr _ \space on \space X}$$
 
