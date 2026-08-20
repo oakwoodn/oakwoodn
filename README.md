@@ -3,13 +3,14 @@
   ![](https://komarev.com/ghpvc/?username=oakwoodn&color=618CD0&style=plastic&label=🦌")
 
 </p>
-<img width="400" height="400" alt="Untitled152_20260731143123" src="https://github.com/user-attachments/assets/ed9460d2-4ebd-484a-a177-b0d52f0bed66" />
+<img width="300" height="300" alt="Untitled176_20260820142935 1" src="https://github.com/user-attachments/assets/049fbdc8-b0b5-4687-974d-37767e9202bc" />
 
-$${\color{#87a6ce}art \space by \space @_eclrr _ \space on \space X}$$
 
-$${\color{#618cd0}loéㅤ.ㅤinfp}$$
+$${\color{#87a6ce}art \space by \space @anatomyparks \space on \space Pinterest}$$
 
-$${\color{#5d65b0}Obstacles - Syd \space Matters}$$
+$${\color{#618cd0}loé \space or \space maxㅤ.ㅤinfp}$$
+
+$${\color{#5d65b0}If \space looks \space could \space kill \space - \space A \space Heartwell \space ending}$$
 
 $${\color{#2d357d}⌢}$$
 </p>
