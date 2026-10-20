@@ -11,11 +11,11 @@
 
 
 
-$${\color{#B7CFD6}loé \space or \space maxㅤ.ㅤinfp}$$
+$${\color{#A3A3A3}loé \space or \space maxㅤ.ㅤinfp}$$
 
-$${\color{#80B4C2}If \space looks \space could \space kill \space - \space A \space Heartwell \space ending}$$
+$${\color{#C7CACB}If \space looks \space could \space kill \space - \space A \space Heartwell \space ending}$$
 
-$${\color{#85BBC9}⌢}$$
+$${\color{DBDDE}⌢}$$
 </p>
 <img width="16" height="8" alt="image" src="https://github.com/user-attachments/assets/519d0c42-3e0f-4bb9-9e41-0ef1a3c11ea9" />
 
